@@ -5,5 +5,5 @@
 - 📫 How to reach me,
   LinkedIn profile:
     https://www.linkedin.com/in/daniyarslamkul/
-  Telegram mess.:
+- Telegram mess.:
     https://t.me/daniyars (@daniyars)
