@@ -6,4 +6,4 @@
   LinkedIn profile:
     https://www.linkedin.com/in/daniyarslamkul/
 - Telegram mess.:
-    https://t.me/daniyars (@daniyars)
+    https://t.me/dnslv10 (@dnslv10)
